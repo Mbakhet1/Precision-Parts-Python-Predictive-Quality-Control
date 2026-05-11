@@ -46,4 +46,4 @@ Location: Sarasota, FL
 Email: mbakhet833@gmail.com   
 
 
-LinkedIn: Mohamed Bakhet
+LinkedIn: https://www.linkedin.com/in/mohamed-bakhet-809288328/
